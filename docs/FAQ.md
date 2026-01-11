@@ -37,7 +37,7 @@ Yes, limits may apply based on your account verification level. Check your dashb
 
 ### How can I contact support?
 - 📧 Email: [coinvalut@outlook.com](mailto:coinvalut@outlook.com)
-- 📞 Phone: +1 332-283-8384
+- 💬 WhatsApp: [+1 332-283-8384](https://wa.me/13322838384)
 
 ### What are your support hours?
 We aim to respond to all inquiries within 24-48 hours.

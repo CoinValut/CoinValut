@@ -35,7 +35,7 @@ We believe in transparent pricing:
 Need help? Our support team is here for you:
 
 📧 **Email**: [coinvalut@outlook.com](mailto:coinvalut@outlook.com)  
-📞 **Phone**: +1 332-283-8384
+💬 **WhatsApp**: [+1 332-283-8384](https://wa.me/13322838384)
 
 ---
 

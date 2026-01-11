@@ -70,7 +70,7 @@ Your security is our top priority:
 **CoinVault**
 
 📧 **Email**: [coinvalut@outlook.com](mailto:coinvalut@outlook.com)  
-📞 **Phone**: +1 332-283-8384  
+💬 **WhatsApp**: [+1 332-283-8384](https://wa.me/13322838384)  
 🌐 **Website**: [www.coinvalut.net](https://www.coinvalut.net)  
 
 ## Connect With Us

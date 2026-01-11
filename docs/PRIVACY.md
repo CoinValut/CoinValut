@@ -59,7 +59,7 @@ We use cookies to improve user experience. You can control cookies through your 
 Questions about privacy? Contact us:
 
 📧 **Email**: [coinvalut@outlook.com](mailto:coinvalut@outlook.com)  
-📞 **Phone**: +1 332-283-8384
+💬 **WhatsApp**: [+1 332-283-8384](https://wa.me/13322838384)
 
 ---
 
